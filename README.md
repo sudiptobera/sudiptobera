@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @sudiptobera
-- 👀 I’m interested in crypto & photography
-- 🌱 I’m currently learning crypto
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Sudiptakumarbera23484@gmail.com
 
 <!---
